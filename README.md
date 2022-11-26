@@ -9,7 +9,7 @@
 Took a permanent break from social media.  
 You can still find me on discord.
 
-Discord: `SoWhale#1968`
+Discord: `Sohail05#9048`
 
 ## WIP Projects & Skills
 
